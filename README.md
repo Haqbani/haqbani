@@ -1,5 +1,4 @@
 ### Hi there 👋, my name is Mohammed
-![](https://i.pinimg.com/originals/28/77/8f/28778f87a6c5fba30292ebcde7bfaebd.gif)
 
 An accomplished Human Resources professional 🧑‍💼 with a strong penchant for understanding and interpreting organizational dynamics, with a specific focus on Total Rewards 💰 and Organizational Development 📈. Over the years, I've honed my expertise in these areas through progressive roles in reputed organizations 🏢.
 
