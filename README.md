@@ -27,7 +27,7 @@ In essence, I am a thorough professional who believes in the power of data-drive
 | Degree | Institution | Years |
 | --- | --- | --- |
 | Bachelor’s degree in finance | Winthrop University, | January 2013 – May 2017 |
-| Master’s degree in finance | MBSC | Augest 2022 - Aguest 2024 |
+
 
 
 
