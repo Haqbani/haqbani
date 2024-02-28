@@ -36,10 +36,7 @@ In essence, I am a thorough professional who believes in the power of data-drive
 | January 2023 - Present | Saudi Cinema Company (AMC) | Organizational Development & Total Rewards Associate Manager |
 | June 2022 - January 2023 | Saudi Cinema Company (AMC) | Senior Organizational Development & Total Rewards |
 | May 2021 – June 2022 | King Saud Bin Abdulaziz University for Health Sciences (KSAU-HS) | A/Manager Compensation and Benefits |
-| August 2020– May 2021 | King Saud Bin Abdulaziz University for Health Sciences (KSAU-HS) | Supervisor Compensation and Benefits |
-| January 2019 – August 2020 | King Saud Bin Abdulaziz University for Health Sciences (KSAU-HS) | Compensation and Benefits Specialist |
-| September 2018 - January 2019 | Investment Services Center (ISC), Sharjah | Financial Analyst |
-| January 2018 – September 2018 | Financial and Accounting Affairs at Petroly Company | Financial Officer |
+
 
 ## Certifications
 | Certification | Acronym |
